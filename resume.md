@@ -8,6 +8,12 @@ https://app.joinhandshake.com/stu/users/19069969
 
 https://www.linkedin.com/in/jalen-sanders-35a4141b2/
 
+
+![Picture](unnamed.png)
+
+
+
+
 # Summary
 
 Current college Senior, maintained a 3.3 cumulative GPA for the years I have attended. Very good people/social skills, and have taken a second language Spanish class for three years. Successful student-athlete and also good with computers. One and a half years of work experience at Popeye’s Louisiana Kitchen in Yakima, Washington, along with a short time spent at Lowe’s Hardware in late 2020. Currently employed in Tech Services and Sales at Office Depot. I work very well with other people, and tend to enjoy most activities involving others.
